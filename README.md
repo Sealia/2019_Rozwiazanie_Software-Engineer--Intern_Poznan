@@ -1,0 +1,1 @@
+# 2019_Rozwiazanie_Software-Engineer--Intern_Poznan
